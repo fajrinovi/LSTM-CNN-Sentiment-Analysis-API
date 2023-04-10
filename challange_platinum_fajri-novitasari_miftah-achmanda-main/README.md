@@ -1,1 +1,0 @@
-# challange_platinum_fajri-novitasari_miftah-achmanda
